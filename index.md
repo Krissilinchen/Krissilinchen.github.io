@@ -7,3 +7,6 @@ Billy ist ein schwarz weißer Kater, der am 24.10.2012 bei mir Zuhause eingezoge
 * besitzt großes Durchsetzungsvermögen, sein Miau bekommt jeden früher oder später weich 
 * Freigänger - egal ob Tag oder Nacht
 * lässt dir stets ein paar Haare als Geschenk zurück
+
+Ein Zitat von Billy:
+> Miauuuuuuuuuuuuuuuuuuuu!!!

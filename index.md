@@ -10,3 +10,5 @@ Billy ist ein schwarz weißer Kater, der am 24.10.2012 bei mir Zuhause eingezoge
 
 Ein Zitat von Billy:
 > Miauuuuuuuuuuuuuuuuuuuu!!!
+
+<img src="https://www.facebook.com/1213152795400496/photos/a.1214664941915948/1214664945249281/?type=1&theater"
